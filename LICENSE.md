@@ -1,4 +1,4 @@
-# 
+# Enhance CapCut for macOS with top CapCut for macOS Tool | shortcut-customization + EQ, the #1 tool. Includes shortcut-customization and EQ for a smoother and more creative editing
 
 
 
